@@ -1,2 +1,4 @@
 # hello-world
-this is where my shiz is gonna be
+
+Yo its ya boi Alex here 
+comin in with a brand new Video, Every Day!
